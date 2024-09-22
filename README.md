@@ -11,7 +11,7 @@ Additionally, I am also enthusiastic about **Cybersecurity** and expanding my kn
 <br/>  
 
 
-For any relevant inputs, or even a connection, reach me out on Gmail: ***tjaya3130@gmail.com*** or even
+For any relevant inputs, or even a connection, reach me out on Gmail: ***tjaya3130@gmail.com*** / ***jaaayaaa.tripathi@gmail.com*** or even
 
 <div>
 <a href="https://www.linkedin.com/in/tripathi-jaya/" target="_blank">
